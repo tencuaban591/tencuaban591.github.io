@@ -1,0 +1,7 @@
+- [https://medium.com/@CelestePadovesi](https://medium.com/@CelestePadovesi)
+- [https://www.quora.com/profile/Celeste-Padovesi](https://www.quora.com/profile/Celeste-Padovesi)
+- [https://www.reddit.com/user/Successful_Simple166/](https://www.reddit.com/user/Successful_Simple166/)
+- [https://www.youtube.com/channel/UCC7kl7ORTzBzUrtvUuraYOA](https://www.youtube.com/channel/UCC7kl7ORTzBzUrtvUuraYOA)
+- [https://yo.fan/celestepadovesi2](https://yo.fan/celestepadovesi2)
+- [https://x.com/CelestePado25](https://x.com/CelestePado25)
+- [https://tencuaban591.github.io](https://tencuaban591.github.io)
